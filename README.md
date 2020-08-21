@@ -2,4 +2,4 @@
 
 A selection of the research I conducted.
 
-Jacobs
+T. Jacobs
